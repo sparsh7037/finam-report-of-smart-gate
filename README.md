@@ -1,0 +1,1 @@
+# finam-report-of-smart-gate
